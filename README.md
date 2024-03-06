@@ -1,0 +1,1 @@
+ignoring some facts that some people(cruise mates) experience from certain cruise's is not logical. ever wondered why the name "celestial ecstasy" is used to refer to alcohol, weed, and other Halogenics? lets discuss Great, innovative and creative thinker's. 
